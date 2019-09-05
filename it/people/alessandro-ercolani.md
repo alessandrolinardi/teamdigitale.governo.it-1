@@ -27,3 +27,4 @@ Mi sono fatto avanti per entrare nel Team subito dopo la lettera di Diego, colpi
 Ho conosciuto Diego al mio primo colloquio per entrare nel team, dopo essere stato selezionato nella lista dei possibili candidati e sono stato subito contagiato dal suo entusiasmo e dal suo ottimismo. Inoltre mi ha molto colpito come il processo di selezione fosse fatto di colloqui e test e quindi identico a quello delle grandi aziende tecnologiche.
 
 Sono un uomo molto fortunato, ho trovato una donna splendida senza la quale non sarei qui (ma probabilmente ancora nelle terre di mezzo a cercare me stesso), ho un figlio di quattro anni che mi adora, e uno di uno che aveva talmente fretta di venire al mondo che è nato tra le mie mani in un distributore di benzina. E poi farò il lavoro dei miei sogni, se non è fortuna questa.
+
